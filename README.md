@@ -3,8 +3,8 @@ there must be many lines of text in this file
 So I am writing them out
 Did you know there is a bird called a great eared nightjar?
 people say it looks like a mini dragon
-i happen to agree with people Amaan Singla Abhinav Kommalapati 
-it's one of my favorite birds
+i happen to agree with people Amaan Singla Abhinav Kommalapati
+it's one of my favorite birds Amaan Singla
 the other one is
 a superb bird of paradise
 look up their little dances
