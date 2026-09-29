@@ -4,7 +4,7 @@ So I am writing them out
 Did you know there is a bird called a great eared nightjar?
 people say it looks like a mini dragon
 Dia Sutaria
-it's one of my favorite birds
+it's one of my favorite birds Maddy
 the other one is
 a superb bird of paradise
 look up their little dances
